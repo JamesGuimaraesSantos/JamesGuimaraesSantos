@@ -1,4 +1,4 @@
-## 📚 Acervo de Anotações
+## 📚 ACERVO DE ANOTAÇÕES
 
 ### Olá! O meu nome é James Guimaraes Santos
 
